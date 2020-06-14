@@ -1,0 +1,2 @@
+# handsoninnovation
+You often wash your hands and then don't try to touch everything to avoid contact with the virus. We have often caught ourselves in situations where we tried to use the sleeves or elbows in public toilets to pull the door handle or to see the person who just opened the door as a door opener and to quickly scurry behind. Specifically, it is about a self-disinfecting door handle that would make everyday life easier and solve this problem for everyone in the challenging situation.
